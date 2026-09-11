@@ -6,7 +6,7 @@
 
 ## 🖼️ 팀 포스터
 
-<img width="1054" height="1492" alt="ChatGPT Image 2026년 9월 11일 오후 03_14_17" src="https://github.com/user-attachments/assets/f483e2af-e773-4e67-bb36-be75202793d0" />
+<img width="1054" height="1492" alt="ChatGPT Image 2026년 9월 11일 오후 03_27_16" src="https://github.com/user-attachments/assets/c077487d-12ea-4e35-8fb3-3d043ea5c8c6" />
 
 ***
 
